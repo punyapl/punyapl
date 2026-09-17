@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **vasabi.light2005@gmail.com**, **[Telegram](t.me/punyapl)**
 
-- 📄 Know about my experiences **[Click me!](https://disk.yandex.ru/d/0MPsGzn590Ca_Q)**
+- 📄 Know about my experiences **[Click me!](https://disk.yandex.ru/i/7SWHKzaAWNY04A)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
